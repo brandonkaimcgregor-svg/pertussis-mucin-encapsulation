@@ -1,4 +1,4 @@
-##百日咳菌をムチンで包み込む新規戦略：毒素制御と抗生物質併用による排除法
+百日咳菌をムチンで包み込む新規戦略：毒素制御と抗生物質併用による排除法
 
 Potential Immune-mediated Clearance of Bordetella pertussis via Mucin Secretion-Enhanced Encapsulation and Antibiotic Synergy
 
